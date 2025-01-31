@@ -24,6 +24,14 @@
 
 [![เช่ารถบ้าน Motorhome](https://i.pinimg.com/736x/53/5f/c6/535fc6e3ab55e3e6814e0432316ded16.jpg)](https://hocahoca.com)
 
+
+### Hoca Camper Truck & Motorhome
+
+22 ซ.เฉชิมพระเกียรติร.9 30 แยก 13 แขวงดอกไม้ เขตประเวศ 10250
+
+**เปิด** วันจันทร์ - วันเสาร์ 
+**เวลา** 09.00 น. - 17.00 น.
+
 **สนใจติดต่อ [+6680-565-9666](tel:+66805659666) (อัควัฒน์)**
 
 **Line id :** **[@hoca](https://lin.ee/g6E7JW8)**
@@ -31,5 +39,7 @@
 **Website :** **[hocahoca.com](https://hocahoca.com)**
 
 **Facebook :** **[HOCA Camper Truck](https://www.facebook.com/hoca.campertruck.motorhome)**
+
+**[Google Map](https://maps.app.goo.gl/sFFFPgNtVNASj5J37)**
 
 ![](https://komarev.com/ghpvc/?username=hoca-campertruck-motorhome)
